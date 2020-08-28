@@ -3,8 +3,12 @@
 ![image](https://github.com/saimj7/saimj7/blob/master/dino.gif)
 
 - Entrepreneur, Gamer, Content creator, Music freak
-- Loves Coffee and Astronomy
+- Loves Cars, Coffee and Astronomy
 
-***thanks for checking out, you're awesome. :beers: onto having a good time!***
+```
+""If I had asked people what they wanted, they would have said faster horses - Henry Ford""
+```
+
+***thanks for checking out, you're awesome, :beers: onto having a good time!***
 
 ---
