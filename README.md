@@ -8,7 +8,7 @@
 _- the ultimate dream is to explore the universe.. too much? Perhaps, Mars? Or should we instead work on living longer and make it a reality?_
 
 ```
-""If I had asked people what they wanted, they would have said faster horses - Henry Ford""
+""The day science begins to study non-physical phenomena, it will make more progress in one decade than in all the previous centuries of its existence - Tesla""
 ```
 
 ***thanks for checking out, you're awesome, :beers: onto having a good time!***
