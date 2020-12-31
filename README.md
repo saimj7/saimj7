@@ -1,6 +1,6 @@
 ### Hi there 👋 Sai here :)
 
-![image](https://github.com/saimj7/saimj7/blob/master/dino.gif)
+![image](https://github.com/saimj7/saimj7/blob/master/ns.gif)
 
 - Entrepreneur, Gamer, Content creator, Music freak
 - Loves The Earth, Cars, Coffee and Astronomy
